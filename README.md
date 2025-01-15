@@ -8,4 +8,4 @@ Popüler ve öne çıkan sitelerden biri olan, kullandığı adresini değiştir
 
 Avrupanın en iyi slot sitesi bu aya özel olarak yeni kayıt olan kullanıcılarına oldukça yüksek hoşgeldiniz bonusu veriyor. Üye olarak bu fırsattan yararlanabilir ve en beğenilen oyunları oynamaya hemen başlayabilirsiniz
 
-## [KAYIT OLMAK VE HOŞGELDİNİZ BONUSU ALMAK İÇİN TIKLAYIN](https://gx72.2.vu/mars11)
+## [KAYIT OLMAK VE HOŞGELDİNİZ BONUSU ALMAK İÇİN TIKLAYIN](https://1.rk1.im/taraf11)
